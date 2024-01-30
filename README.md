@@ -1,3 +1,5 @@
 - 👋 Hi, I’m @ReecelJones
 - 👀 I’m interested in making games and interesting experiences
-- 📫 How to reach me ... @ReeceLJones_ on Twitter
+- 📫 How to reach me:
+-   @ReeceLJones_ on Twitter
+-   reeceljones@outlook.com
