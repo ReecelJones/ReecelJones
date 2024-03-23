@@ -3,3 +3,4 @@
 - 📫 How to reach me:
 -   @ReeceLJones_ on Twitter
 -   reeceljones@outlook.com
+-   Check out my Code Showcase here: https://www.linkedin.com/in/reece-jones-ab7721217/ 
